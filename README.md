@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MilanBlock
-- 👀 I’m interested in Science, Video Games and Anime/Manga
+- 👀 I’m interested in Science, Video Games and Japanese Pop-Culture
 - 🌱 I’m currently learning programing and Japanese
 - 💞️ I’m looking to collaborate on nothing because im a noob 🙃
 - 📫 How to reach me: milankoriath@outlook.de
